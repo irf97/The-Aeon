@@ -73,3 +73,21 @@
 *When you feel above, return. The ground is where the aeon is held.*
 
 *Gifts pass through. Carry them. Do not carry yourself with them.*
+
+---
+
+**Axis Six — The Holder and What is Larger**
+
+*You stand within what you did not make.*
+
+*What gave you the ground is not the ground.*
+
+*Revere without naming, if you cannot name. Name without worshipping, if you can.*
+
+*Do the beautiful as if seen. Do the true as if accountable.*
+
+*Clear the heart. Without the clearing, the other five become machinery.*
+
+*What you owe the larger is not obedience. It is attention.*
+
+
